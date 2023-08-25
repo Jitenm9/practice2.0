@@ -12,3 +12,12 @@ less
 than
 6
 months .
+I 
+have 
+also
+an
+alternativr
+dream
+to 
+brcome a 
+3D Animator .
